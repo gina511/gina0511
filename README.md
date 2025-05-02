@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/e89267f9-7165-4991-8610-e6883956f99b)# gina0511
+# gina0511
 ## 🙉主頁 / 履歷頁面
 基本資料、技能
 ## 😶‍🌫️個人介紹頁
